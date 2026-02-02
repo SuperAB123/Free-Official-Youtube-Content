@@ -19,8 +19,6 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 This list will only focus on official YouTube channels who have the rights to post the content online, no unofficial uploaders are allowed
 
-Buy second hand Blu-rays(1080p/4K and lossless audio) and DVDs(480p and audio on par with streaming services) of the movies and shows you love and will watch more than once, they are cheap af, often have extra content, you can keep and watch it forever and no one can take it away.
-
 [Original list on Rentry](https://rentry.co/Free-Official-Youtube-Content)
 
 ### Table Of Contents
@@ -1351,6 +1349,8 @@ Made with ❤️ by awesome people
 #### If you enjoy using this list, a star on github would be greatly appreciated!
 
 [If you want me to try out/give me 5 days of Real Debrid, use my referral link next time you renew/buy your Real Debrid subscription !](http://real-debrid.com/?id=15299096)
+
+Buy second hand Blu-rays(1080p/4K and lossless audio) and DVDs(480p and audio on par with streaming services) of the movies and shows you love and will watch more than once, they are cheap af, often have extra content, you can keep and watch it forever and no one can take it away.
 
 Awesome list of official YouTube channels offering Movies, Anime, Cartoons, Documentaries, TV Shows & More. Includes content like Frozen shorts, Disney's Parks, TV & movie clips & clip compilations, Pokemon, SpongeBob, Breaking Bad, Harry Potter, HBO, BBC, WWE, NBA, F1, UFC, NASA, NFL, Sony, Universal, MLB, Netflix, DC, FIFA, Netflix, PGA, Apple TV
 #### If you enjoy using this list, a star on github would be greatly appreciated!
