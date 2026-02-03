@@ -581,7 +581,7 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Disney Music**](https://www.youtube.com/@DisneyMusicVEVO) (Official musical clips annd scenes from Disney animations and movies)
 
-[**Disney On Broadway**](https://www.youtube.com/@disneymusicals) (Clips, songs and special features from Disney musicals on Broadway ([except Hamilton because it has its own YT channel](https://www.youtube.com/@HamiltonMusical)))
+[**Disney On Broadway**](https://www.youtube.com/@disneymusicals) (Clips, songs and special features from Disney musicals on Broadway 
 
 [**Disney Parks**](https://www.youtube.com/@DisneyParks) (Park tours, ride-throughs, event coverage, and behind‑the‑scenes content from Disney Parks worldwide.)
 
@@ -610,6 +610,8 @@ This list will only focus on official YouTube channels who have the rights to po
 [**Harry Potter**](https://www.youtube.com/@harrypotter) (Movie recaps, deleted scenes and extras)
 
 [**Harry Potter and the Cursed Child**](https://www.youtube.com/@CursedChildOfficial) (clips and BTS) 
+
+[**Hamilton**](https://www.youtube.com/@HamiltonMusical)
 
 [**HBO**](https://www.youtube.com/@HBO) (Trailers, clips, and behind-the-scenes content from HBO series and films)
 
