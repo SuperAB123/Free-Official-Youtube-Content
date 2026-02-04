@@ -541,6 +541,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Avatar**](https://www.youtube.com/@AvatarOfficial) (Content related to the Avatar movies, including Blu-Ray extras and YT original extras)
 
+[**BAFTA**](https://www.youtube.com/@bafta) 
+
 [**BBC**](https://www.youtube.com/@BBC) (Clips, trailers, and content from BBC programming)
 
 [**BBC Archive**](https://www.youtube.com/@BBCArchive) (Historical BBC broadcasts and archival content)
