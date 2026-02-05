@@ -1,4 +1,4 @@
-# Free Official YouTube Content: Movie, Anime, Cartoon & More
+# Free Official YouTube Content: Movie, Anime, Cartoon
 If you are overwhelmed, just scroll down to read and use the list.
 
 There's many official YouTube channels that upload full content for free, be it Movies, TV Shows, Cartoons, Anime...
