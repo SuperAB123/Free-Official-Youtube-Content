@@ -1327,10 +1327,13 @@ This list will only focus on official YouTube channels who have the rights to po
 
 ## [**View Archived Page**](https://web.archive.org/https://github.com/superlincoln953/Free-Official-Youtube-Content)
 
+#### If you enjoy using this list, a star on github would be greatly appreciated!
+
 ---
 
 #### If you enjoy using this list, a star on github would be greatly appreciated!
 #### [If you want me to try out/give me 5 days of Real Debrid, use my referral link next time you renew/buy your Real Debrid subscription !](http://real-debrid.com/?id=15299096)
+#### If you enjoy using this list, a star on github would be greatly appreciated!
 
 ---
 
