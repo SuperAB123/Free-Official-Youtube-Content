@@ -1353,9 +1353,9 @@ A big thank you to everyone who has contributed to making this list awesome! You
 
 Made with ❤️ by awesome people
 
-#### If you enjoy using this list, a star on github would be greatly appreciated!
-
 [If you want me to try out/give me 5 days of Real Debrid, use my referral link next time you renew/buy your Real Debrid subscription !](http://real-debrid.com/?id=15299096)
+
+#### If you enjoy using this list, a star on github would be greatly appreciated!
 
 Buy second hand Blu-rays(1080p/4K and lossless audio) and DVDs(480p and audio on par with streaming services) of the movies and shows you love and will watch more than once, they are cheap af, often have extra content, you can keep and watch it forever and no one can take it away.
 
