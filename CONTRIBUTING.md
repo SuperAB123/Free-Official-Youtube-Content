@@ -37,6 +37,7 @@ Look for issues in the [issues section](https://github.com/vighneshb04/Free-Offi
 
 Made with ❤️ by awesome people!
 ---
+[If you want me to try out/give me 5 days of Real Debrid, use my referral link next time you renew/buy your Real Debrid subscription !](http://real-debrid.com/?id=15299096)
 #### If you enjoy using this list, a star on github would be greatly appreciated!
 **Follow the Markdown format**
 
