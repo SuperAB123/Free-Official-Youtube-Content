@@ -37,6 +37,7 @@ Look for issues in the [issues section](https://github.com/vighneshb04/Free-Offi
 
 Made with ❤️ by awesome people!
 ---
+#### If you enjoy using this list, a star on github would be greatly appreciated!
 **Follow the Markdown format**
 
 **If it's in any way linked to something that you normally have to pay to see, and the channel is active and posts related content to it, then add it and write a short description of the type of content**
@@ -50,8 +51,9 @@ Try to keep the links as https://www.youtube.com/@*ChannelName*
 If you don't know of any YouTube channels that fit the description but still want to contribute, you can do so by adding some small descriptions to channels without descriptions, possibly following the simple formula via a pull request, for the channels which don't have one. You can also fix inaccurate descriptions or typos via a pull request. 
 
 For people who want to suggest content, don't add YouTubers to the list, unless they focus on restoring and/or uploading public domain content like old movies and documentaries. And don't add region locked channels that require [a VPN](https://fmhy.net/privacy#vpn) to look at their content, I've had many suggested channels with lots of playlists which were hidden because they were region locked to a certain area. These are outside the scope of my list. 
-
+#### If you enjoy using this list, a star on github would be greatly appreciated!
 [If you want me to try out/give me 5 days of Real Debrid, use my referral link next time you renew/buy your Real Debrid subscription !](http://real-debrid.com/?id=15299096)
-
+#### If you enjoy using this list, a star on github would be greatly appreciated!
 Awesome list of official YouTube channels offering Movies, Anime, Cartoons, Documentaries, TV Shows & More. Includes content like Frozen shorts, Disney's Parks, TV & movie clips & clip compilations, Pokemon, SpongeBob, Breaking Bad, Harry Potter, HBO, BBC, WWE, NBA, F1, UFC, NASA, NFL, Sony, Universal, MLB, Netflix, DC, FIFA, Netflix, PGA, Apple TV
+#### If you enjoy using this list, a star on github would be greatly appreciated!
 ###### Always read `README.md` and `CONTRIBUTING.md` in full first before you  [![Ask DeepWiki](https://deepwiki.com/badge.svg)](https://deepwiki.com/superlincoln953/Free-Official-Youtube-Content)! Contributors have worked very hard on writing and maintaining this list! 
