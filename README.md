@@ -1109,6 +1109,10 @@ This list will only focus on official YouTube channels who have the rights to po
 
 ### Sport
 
+[AFC Clubs](https://www.youtube.com/@TheAFCHub) (Asian Club Football streams, highlights and more, go to the "Live" page for streams)
+
+[AFC National Teams](https://www.youtube.com/@AFCAsianCup) (Asian Nations Football streams, highlights and more, go to the "Live" page for streams)
+
 [**All Elite Wrestling**](https://www.youtube.com/@AEW) (Clips, highlights, and full matches)
 
 [**Arcteryx**](https://www.youtube.com/@arcteryx) (Outdoor adventure and climbing content)
@@ -1129,7 +1133,15 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**CBS Sports**](https://www.youtube.com/@CBSSports) (Highlights, analysis, and full game replays)
 
-[**Concaf**](https://www.youtube.com/@concacaf) (Football streams, highlights and more, go to the "Live" page for streams)
+[CON.C.A.C.A.F.](https://www.youtube.com/@concacaf) (CON.C.A.C.A.F. Football streams, highlights and more, go to the "Live" page for streams)
+
+[CONMEBOL](https://www.youtube.com/@conmebol) (CONMEBOL National Team Football streams, highlights and more, go to the "Live" page for streams)
+
+CONMEBOL Libertadores - [in Spanish](https://www.youtube.com/@Libertadores) or [in Portuguese](https://www.youtube.com/@LibertadoresBR) (South America´s Champions League equivalent highlights and more)
+
+CONMEBOL Sudamericana- [in Spanish](https://www.youtube.com/@Sudamericana) or [in Portuguese](https://www.youtube.com/@SudamericanaBR) (South America´s Europa League equivalent highlights and more)
+
+[CPBL](https://www.youtube.com/@CPBL) (Taiwanese Baseball highlights, game recaps, and others)
 
 [**DAZN Canada**](https://www.youtube.com/@dazncanada) (Sports streaming highlights and content for Canadian audiences)
 
@@ -1165,6 +1177,16 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**International Judo Federation**](https://www.youtube.com/@judo) (Live events and highlights)
 
+[IMSA](https://www.youtube.com/@imsaofficial) (North American road racing streams, highlights and more, go to the "Live" page for streams)
+
+[Japanese High School Soccer](https://www.youtube.com/@sportsbull_soccer)
+
+[Japanese Industrial League](https://www.youtube.com/@jabastationthe4290)
+
+Koshien [Spring](https://www.youtube.com/@senbatsu_live) and [Summer](https://www.youtube.com/@virtual_kokoyakyu) (Japanese High School Baseball highlights, game recaps, and others)
+
+[KBO League](https://www.youtube.com/@KBO1982) (Korean Baseball highlights, game recaps, and others)
+
 [**World Heyball Tour**](https://www.youtube.com/@WorldHeyballTour) (Official heyball tournament coverage and highlights)
 
 [**LaLiga**](https://www.youtube.com/@LaLiga) (Official Spanish football league channel)
@@ -1177,9 +1199,13 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**MLB**](https://www.youtube.com/@MLB) (Official Major League Baseball highlights, game recaps, and classic games)
 
-[**MotoGP**](https://www.youtube.com/@motogp) (Race highlights, clips, and full classic races)
+[MLB Vault](https://www.youtube.com/@mlbvault) (Major League Baseball Archives with classic games and Highlights)
+
+[**MotoGP**](https://www.youtube.com/@motogp) (Post-2014 Full Race archives, highlights and Others)
 
 [**NASCAR**](https://www.youtube.com/@nascar) (Clips, highlights, interviews and extras)
+
+[NASCAR Classics](https://www.youtube.com/@NASCARClassics) (Pre and post 2014 Full Race archives, highlights and extras)
 
 [**NBA**](https://www.youtube.com/@NBA) (Official NBA highlights, full game recaps, and classic games)
 
@@ -1195,9 +1221,18 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**NTT INDYCAR SERIES**](https://www.youtube.com/@indycar) (Clips, highlights and extras)
 
-[**Olympics**](https://www.youtube.com/Olympics) (Clips, small documentaries and Live events)
+[Nippon Professional Baseball](https://www.youtube.com/@NPB.official) (Japan Series and NPB All Star Highlights and other content)
+NPB Central League (([Yomiuri Giants](https://www.youtube.com/@ntv_baseball) , [Hanshin Tigers](https://www.youtube.com/@hanshintigers_official) , [Yokohama BayStars](https://www.youtube.com/@baystarsofficial) , [Chunuchi Dragons 1](https://www.youtube.com/@CHUNICHI_DRAGONS) , [Chunuchi Dragons 2](https://www.youtube.com/@moedraCH-CBC) [Yakult Swallows](https://www.youtube.com/@Yakult-swallowsCoJp) Highlights and others) 
+
+NPB [Pacific League](https://www.youtube.com/@PacificLeagueTVofficial) (good half of the Japanese Baseball League Highlights and others)
+
+NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial) (Pacific League English anaylisis and sometimes live games)
+
+[**Olympics**](https://www.youtube.com/Olympics) (Olympic Games Archives, Highlights and Others)
 
 [**Overtime**](https://www.youtube.com/@overtime) (Highlights and stories focusing on the next generation of athletes)
+
+[Paralympics](https://www.youtube.com/@paralympics) (Paralympic Games Archives, Highlights and Others)
 
 [**PGA TOUR**](https://www.youtube.com/@PGATour) (Tournament highlights, player features, and iconic shots)
 
@@ -1219,6 +1254,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**The Emirates FA Cup**](https://www.youtube.com/@thefacup) (Official FA Cup highlights and match coverage)
 
+[TNT Sports Brasil](https://www.youtube.com/@TNTSportsBR) (Brazilian football highlights and more)
+
 [**UEFA**](https://www.youtube.com/@UEFA) 
 
 [**UFC - Ultimate Fighting Championship**](https://www.youtube.com/@ufc) (Fight highlights, full fight replays, interviews, and press conferences)
@@ -1233,6 +1270,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**World Athletics**](https://www.youtube.com/@worldathletics) (Live track and field events and highlights)
 
+[World Baseball Classic](https://www.youtube.com/@worldbaseballclassic) (Baseball World Cup full game archives, highlights and others)
+
 [**World Poker Tour**](https://www.youtube.com/@WorldPokerTour) (Full episodes and final table highlights from major tournaments)
 
 [**World Rugby**](https://www.youtube.com/@worldrugby) (Full matches, highlights, and documentaries)
@@ -1244,6 +1283,8 @@ This list will only focus on official YouTube channels who have the rights to po
 [**WWE on Netflix**](https://youtube.com/@wweonnetflix) (WWE content exclusive to Netflix)
 
 [**WWE Vault**](https://www.youtube.com/@WWEVault) (Classic WWE matches and archival wrestling content)
+
+[Virtual Kokou Yakyu](https://www.youtube.com/@virtual_kokoyakyu) (Japanese HS Baseball highlights and more)
 
 ### Esport
 
