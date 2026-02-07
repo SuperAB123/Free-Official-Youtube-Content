@@ -1179,7 +1179,7 @@ CONMEBOL Sudamericana- [in Spanish](https://www.youtube.com/@Sudamericana) or [i
 
 [IMSA](https://www.youtube.com/@imsaofficial) (North American road racing streams, highlights and more, go to the "Live" page for streams)
 
-[Japanese High School Soccer](https://www.youtube.com/@sportsbull_soccer)
+[Japanese High School Football](https://www.youtube.com/@sportsbull_soccer)
 
 [Japanese Industrial League](https://www.youtube.com/@jabastationthe4290)
 
