@@ -365,6 +365,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Association of Air Force Missileers (AAFM)**](https://www.youtube.com/@associationofairforcemissi4328) (Documentaries and restored official films)
 
+[**AtomCentral**](https://www.youtube.com/@atomcentral) (US Atomic and Nuclear Test footage) 
+
 [**A/V Geeks 16mm Films**](https://www.youtube.com/@avgeeks) (A/V Geeks film archive, very active channel)
 
 [**Banijay Science**](https://www.youtube.com/@banijayscience) (Science and nature documentaries from the Banijay production company)
