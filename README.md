@@ -1087,6 +1087,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**ReDefine**](https://www.youtube.com/@thisisredefine/featured) (VFX breakdowns from ReDefine studio)
 
+[**Refuge**](https://www.youtube.com/@refugevfx) 
+
 [**RISE | Visual Effects Studios**](https://www.youtube.com/@RISE_FX) (VFX breakdowns from RISE studio)
 
 [**Rodeo FX**](https://www.youtube.com/@Rodeo_FX) (VFX breakdowns from Rodeo FX, featuring work on Game of Thrones and Marvel films)
