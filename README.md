@@ -1260,6 +1260,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [TNT Sports Brasil](https://www.youtube.com/@TNTSportsBR) (Brazilian football highlights and more)
 
+[**UAE SWAT Challenge**](https://www.youtube.com/@uaeswatchallenge) 
+
 [**UEFA**](https://www.youtube.com/@UEFA) 
 
 [**UFC - Ultimate Fighting Championship**](https://www.youtube.com/@ufc) (Fight highlights, full fight replays, interviews, and press conferences)
