@@ -1051,6 +1051,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**BlueBolt VFX**](https://www.youtube.com/@blueboltvfx) (VFX breakdowns from the BlueBolt visual effects studio)
 
+[**befores & afters**](https://www.youtube.com/@beforesmag/) 
+
 [**Cinesite**](https://www.youtube.com/@Cinesite.) (VFX and animation breakdowns)
 
 [**Crafty Apes**](https://www.youtube.com/@CraftyApesVFX) (Visual effects breakdowns from film and television productions)
