@@ -495,6 +495,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Steve Jobs Archive**](https://www.youtube.com/@Steve-Jobs-Archive) 
 
+[**Survive Plus**](https://www.youtube.com/@SurvivePlus/) (Full documentaries) 
+
 [**The Emulsion Alchemist**](https://www.youtube.com/@theemulsionalchemist5688) (Restored old, obscure, informational films)
 
 [**The Film Gate**](https://www.youtube.com/@Thefilmgate) (Stock Footage from historical films)
