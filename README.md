@@ -599,6 +599,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Entertainment Tonight**](https://www.youtube.com/@EntertainmentTonight/) 
 
+[**Entertainment Weekly**](https://www.youtube.com/@entertainmentweekly) 
+
 [**First We Feast**](https://www.youtube.com/@FirstWeFeast) (Home of the "Hot Ones" celebrity interview show)
 
 [**Food Network**](https://youtube.com/@foodnetwork) (Full episodes, clips, trailers from Food Network TV shows)
