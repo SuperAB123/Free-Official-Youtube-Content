@@ -121,6 +121,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Adventure Time**](https://www.youtube.com/@AdventureTime) (Mostly clips and compilations, but some full episodes and marathons)
 
+[**Adult Swim**](https://www.youtube.com/@adultswim) 
+
 [**Angry Birds**](https://www.youtube.com/@AngryBirds) (Full episodes of the animated series)
 
 [**AniDom**](https://www.youtube.com/@AniDom) (Fox animated shows, mostly clips)
@@ -187,7 +189,7 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Retro Rerun TV**](https://www.youtube.com/@RetroRerunTV) (Miscellaneous cartoons, TV shows and anime)
 
-[**Rick and Morty**](https://www.youtube.com/@adultswim) (Clips, behind the scenes, and sometimes full episodes via Adult Swim)
+[**Rick and Morty**](https://www.youtube.com/@rickandmorty) (Clips, behind the scenes, and sometimes full episodes)
 
 [**Shaun the Sheep Official**](https://www.youtube.com/@ShauntheSheepOfficial) (Full episode compilations and live streaming episodes)
 
