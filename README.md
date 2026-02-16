@@ -1306,6 +1306,14 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 ### Esport
 
+[**ESL Archives**](https://www.youtube.com/eslarchives)
+
+[**ESL Counter-Strike**](https://www.youtube.com/@ESLCS)
+
+[**ESL Counter-Strike Highlights**](https://www.youtube.com/@ESLCSHighlights/)
+
+[**ESL Dota 2**](https://www.youtube.com/@esldota2) 
+
 ### Tech & Security
 
 [**Black Hat**](https://www.youtube.com/@BlackHatOfficialYT) (Official channel for Black Hat cybersecurity conferences, featuring full briefings and talks from events)
