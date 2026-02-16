@@ -127,6 +127,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**AniDom**](https://www.youtube.com/@AniDom) (Fox animated shows, mostly clips)
 
+[**Aqua Teen Hunger Force**](https://www.youtube.com/@AquaTeen-HungerForce) 
+
 [**Avatar: The Last Airbender**](https://www.youtube.com/@avatarthelastairbender) (Official clips, compilations, and full episodes)
 
 [**Ben 10**](https://www.youtube.com/@Ben10) (Official clips, compilations, and full episodes, in English)
