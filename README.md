@@ -1318,6 +1318,12 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**ESL Dota 2**](https://www.youtube.com/@esldota2) 
 
+[**LCK**](https://www.youtube.com/@LCK)
+
+[**LCK Global**](https://www.youtube.com/@LCKglobal)
+
+[**LEC**](https://www.youtube.com/@LEC) 
+
 ### Tech & Security
 
 [**Black Hat**](https://www.youtube.com/@BlackHatOfficialYT) (Official channel for Black Hat cybersecurity conferences, featuring full briefings and talks from events)
