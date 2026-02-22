@@ -737,6 +737,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Variety**](https://www.youtube.com/@variety) (Interviews and industry news)
 
+[**Variety Events**](https://www.youtube.com/@VarietyEvents) 
+
 [**ViuTV**](https://www.youtube.com/@ViuTV) (Free HK TV Channel)
 
 [**ViuTV World by MakerVille**](https://www.youtube.com/@ViuTVWorld) (Same as ViuTV but with full content)
