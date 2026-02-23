@@ -871,6 +871,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Wicked**](https://www.youtube.com/c/wickedmovie) (musical)
 
+[**Wicked in Canto**](https://www.youtube.com/@WickedinCanto) 
+
 ### TV Shows
 
 [**2 Broke Girls**](https://www.youtube.com/@2brokegirls) (Clips and some compilations)
