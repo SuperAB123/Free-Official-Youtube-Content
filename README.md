@@ -145,6 +145,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Code Lyoko Officiel**](https://www.youtube.com/@codelyokoofficiel7410) (Full episodes and compilations, French only)
 
+[**Corneil & Bernie Officiel**](https://www.youtube.com/@CorneiletBernie) (Full episodes and compilations, French only)
+
 [**Cyanide & Happiness**](https://www.youtube.com/@ExplosmEntertainment) (Official shorts and compilations)
 
 [**Discovery Kids India**](https://www.youtube.com/@DiscoveryKidsIN) (Official cartoons & animated movie content for children in multiple Indian languages)
@@ -161,13 +163,25 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Foot 2 Rue**](https://www.youtube.com/@foot2rueextreme/videos) (All full episodes, French only)
 
+[**Funky Cops English Official**](https://www.youtube.com/@funkycopsenglishofficial8311) (Full episodes and compilations)
+
 [**Garfield & Friends**](https://www.youtube.com/@GarfieldAndFriends) (Full episodes of the classic cartoon)
+
+[**Gawayn**](https://www.youtube.com/@gawayn8977) (Full episodes and compilations)
 
 [**GLITCH**](https://www.youtube.com/@GLITCH) (ALL Full seasons and episodes)
 
 [**Green Gold TV**](https://www.youtube.com/@GreenGoldTV) (Official Green Gold Animation channel — creators of Chhota Bheem, Mighty Little Bheem & Super Bheem)
 
+[**Huntik Secrets and Seekers**](https://www.youtube.com/@HuntikOfficial) (Full episodes and compilations)
+
+[**Inspector Gadget**](https://www.youtube.com/@InspectorGadget) (Full episodes and compilations)
+
 [**Johnny Test**](https://www.youtube.com/@JohnnyTest) (Multiple languages)
+
+[**Kaeloo Officiel**](https://www.youtube.com/@KaelooOfficiel) (Full episodes and compilations, French only)
+
+[**Kaeloo English**](https://www.youtube.com/@KaelooEnglish) (Full episodes and compilations, in English)
 
 [**Keep It Weird**](https://www.youtube.com/@KeepItWeird) (Miscellaneous cartoons from Nickelodeon)
 
@@ -177,11 +191,15 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Les Minijusticiers Officiel**](https://www.youtube.com/@lesminijusticiersofficiel6484) (Full episodes and compilations, French only)
 
+[**Martin Mystery**](https://www.youtube.com/@MartinMysteryChannel) (Full episodes and compilations)
+
 [**Marvel H.Q.**](https://www.youtube.com/@MarvelHQ) (Multiple cartoons, both clips and full episodes)
 
 [**Mcdull 麥兜**](https://www.youtube.com/@mylifeasmcdull) (Clips)
 
 [**Minimighty Kids Official**](https://www.youtube.com/@minimightykidsofficial1278) (Full episodes and compilations, in English)
+
+[**Minuscule**](https://www.youtube.com/@Minuscule) (Full episodes and compilations of the CGI/live-action series about insects)
 
 [**Miraculous Ladybug**](https://www.youtube.com/@Miraculous) (Clips, compilations and full episodes)
 
@@ -197,6 +215,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Rick and Morty**](https://www.youtube.com/@rickandmorty) (Clips, behind the scenes, and sometimes full episodes)
 
+[**Robotboy**](https://www.youtube.com/@robotboy9347) (Full episodes and compilations)
+
 [**Shaun the Sheep Official**](https://www.youtube.com/@ShauntheSheepOfficial) (Full episode compilations and live streaming episodes)
 
 [**Simon's Cat**](https://www.youtube.com/@SimonsCat) (Full episodes of the popular animated web series)
@@ -205,11 +225,15 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Smerfy • Po Polsku**](https://www.youtube.com/@Smerfy) ("The Smurfs" in Polish)
 
+[**Space Goofs**](https://www.youtube.com/@Spacegoofs) (Full episodes and compilations)
+
 [**SpongeBob SquarePants Official**](https://www.youtube.com/@SpongeBobOfficial) (Mostly clips but also full episode marathons)
 
 [**Studio Filmów Rysunkowych**](https://www.youtube.com/@studiofilmowrysunkowych) (Multiple cartoons in Polish)
 
 [**Teenage Mutant Ninja Turtles**](https://www.youtube.com/@tmnt) (Mostly clips and unrelated videos, but also has some episodes)
+
+[**The Cramp Twins**](https://www.youtube.com/@TheCrampTwins) (Full episodes and compilations)
 
 [**The Fairly OddParents**](https://www.youtube.com/@TheFairlyOddParentsOfficial) (Clips, shorts, and full episodes from the Nickelodeon series)
 
@@ -218,6 +242,14 @@ This list will only focus on official YouTube channels who have the rights to po
 [**The Smurfs**](https://www.youtube.com/@TheSmurfsEnglish) (Official clips, compilations and full episodes)
 
 [**The Simpsons**](https://www.youtube.com/@TheSimpsons) (Official clips, compilations, and shorts)
+
+[**Titeuf Saison 1 Officiel**](https://www.youtube.com/@TiteufFR) (Full episodes and compilations, French only)
+
+[**Titeuf Saison 4 Officiel**](https://www.youtube.com/@TiteufSaison4Off) (Full episodes and compilations, French only)
+
+[**Totally Spies! Français**](https://www.youtube.com/@TotallySpiesFrançais) (Full episodes and compilations, French only)
+
+[**Totally Spies!**](https://www.youtube.com/@TotallySpiesChannel) (Full episodes and compilations, in English)
 
 [**Transformers Official**](https://www.youtube.com/@TransformersOfficial) (Clips and full episodes from various Transformers series)
 
