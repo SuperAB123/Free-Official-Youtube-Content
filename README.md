@@ -175,9 +175,13 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**LACKADAISY**](https://www.youtube.com/@LackadaisyComic) (Full episodes)
 
+[**Les Minijusticiers Officiel**](https://www.youtube.com/@lesminijusticiersofficiel6484) (Full episodes and compilations, French only)
+
 [**Marvel H.Q.**](https://www.youtube.com/@MarvelHQ) (Multiple cartoons, both clips and full episodes)
 
 [**Mcdull 麥兜**](https://www.youtube.com/@mylifeasmcdull) (Clips)
+
+[**Minimighty Kids Official**](https://www.youtube.com/@minimightykidsofficial1278) (Full episodes and compilations, in English)
 
 [**Miraculous Ladybug**](https://www.youtube.com/@Miraculous) (Clips, compilations and full episodes)
 
