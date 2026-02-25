@@ -1097,6 +1097,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Autodesk**](https://www.youtube.com/@Autodesk) (Software tutorials that often include professional VFX breakdowns)
 
+[**Autodesk Media & Entertainment**](https://www.youtube.com/@AutodeskME/) 
+
 [**BlueBolt VFX**](https://www.youtube.com/@blueboltvfx) (VFX breakdowns from the BlueBolt visual effects studio)
 
 [**befores & afters**](https://www.youtube.com/@beforesmag/) 
