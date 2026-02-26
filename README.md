@@ -1117,6 +1117,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Ghost VFX**](https://www.youtube.com/@officialghostvfx) (Breakdowns for Star Wars series and other major films)
 
+[**Gnomon**](https://www.youtube.com/@gnomon_school) 
+
 [**Hybride VFX**](https://youtube.com/@hybridevfx) (VFX breakdowns from Hybride, showcasing their work on films and TV)
 
 [**ImageEngineVFX**](https://youtube.com/@imageengine) (VFX breakdowns from Image Engine, known for sci-fi and action films)
