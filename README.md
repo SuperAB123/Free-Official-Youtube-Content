@@ -1358,7 +1358,9 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**ESL Counter-Strike Highlights**](https://www.youtube.com/@ESLCSHighlights/)
 
-[**ESL Dota 2**](https://www.youtube.com/@esldota2) 
+[**ESL Dota 2**](https://www.youtube.com/@esldota2)
+
+[**Excel Esports**](https://www.youtube.com/@msexcelesports) 
 
 [**LCK**](https://www.youtube.com/@LCK)
 
