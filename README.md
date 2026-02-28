@@ -979,6 +979,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Jail**](https://www.youtube.com/@JailTVShow) (Multiple languages, some clips)
 
+[**Jennifer Hudson Show**](https://www.youtube.com/@JenniferHudsonShow) 
+
 [**Jimmy Kimmel Live**](https://www.youtube.com/@JimmyKimmelLive) (Full interviews, monologues, and comedy sketches)
 
 [**Kitchen Nightmares**](https://www.youtube.com/@KitchenNightmares) (Clips, full episodes and full seasons)
