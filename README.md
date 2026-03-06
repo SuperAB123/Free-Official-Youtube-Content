@@ -605,6 +605,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**BFI**](https://www.youtube.com/@britishfilminstitute) 
 
+[**CartoonBrew.com Official**](https://www.youtube.com/@cartoonbrew/)
+
 [**CBC**](https://www.youtube.com/@CBC) (Clips and Trailers)
 
 [**CBS**](https://www.youtube.com/@CBS) (Clips and Trailers)
