@@ -1402,6 +1402,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**Rapid7**](https://www.youtube.com/@OfficialRapid7) (Official channel for the company behind Metasploit, sharing security research, webcasts, and product tutorials)
 
+[**REverse Conference**](https://www.youtube.com/@REverseConf) 
+
 [**RSA Conference**](https://www.youtube.com/@RSAConference) (Official channel for the RSA Conference, covering a wide range of cybersecurity topics, insights, and keynotes)
 
 [**SANS Institute**](https://www.youtube.com/@SANSInstitute) (The official channel for SANS, a leader in cybersecurity training, sharing webcasts and talks on digital forensics and security)
