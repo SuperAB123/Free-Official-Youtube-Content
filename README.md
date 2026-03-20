@@ -719,6 +719,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Prime Video**](https://www.youtube.com/@PrimeVideo) (Trailers, clips, and behind-the-scenes content from Amazon Prime Video originals)
 
+[**Playbill**](https://www.youtube.com/@PLAYBILLVIDEO/) 
+
 [**PublicResourceOrg**](https://www.youtube.com/@PublicResourceOrg) (Public domain films, government documents, and educational content)
 
 [**Rochester TV Archive**](https://www.youtube.com/@RochesterTVArchive) (Archived local television broadcasts and historical TV content)
