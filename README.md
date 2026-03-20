@@ -477,6 +477,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Military Heroes**](https://www.youtube.com/@MilitaryHeroes/) (Military documentaries and historical war content)
 
+[**Moonpans**](https://www.youtube.com/@Moonpans/) (Apollo Panoramas and upscaled Apollo Mission Footage) 
+
 [**NASA**](https://www.youtube.com/@NASA) (live, Informative videos and some full original documentaries)
 
 [**NASA's Ames Research Center**](https://www.youtube.com/@NASAAmes) (Clips from documentaries and tests)
