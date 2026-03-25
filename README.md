@@ -529,6 +529,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Sen**](https://www.youtube.com/@Sen) (Earth from space in 4K | 4K Livestream of Earth from Space | Live Views from ISS)
 
+[**Shuttlesource**](https://www.youtube.com/@Shuttlesource) 
+
 [**Smithsonian Channel**](https://www.youtube.com/@SmithsonianChannel) (History, science, and culture documentaries produced by the Smithsonian Institution.)
 
 [**Space Oral History**](https://www.youtube.com/@spaceoralhistory8448/) (Interviews and oral histories from astronauts, engineers, and space program historians.)
