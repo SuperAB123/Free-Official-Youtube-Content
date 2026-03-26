@@ -1374,7 +1374,9 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**ESL Dota 2**](https://www.youtube.com/@esldota2)
 
-[**Excel Esports**](https://www.youtube.com/@msexcelesports) 
+[**Excel Esports**](https://www.youtube.com/@msexcelesports)
+
+[**iRacing**](https://www.youtube.com/@iRacingOfficial)
 
 [**LCK**](https://www.youtube.com/@LCK)
 
