@@ -1392,6 +1392,12 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**LEC**](https://www.youtube.com/@LEC) 
 
+[**StarLadder CS2**](https://www.youtube.com/@starladder_cs)
+
+[**StarLadder CS2 Highlights**](https://www.youtube.com/@starladder_cs_highlights) 
+
+[**StarLadder CS2 LIVE**](https://www.youtube.com/@starladder_cs_live)
+
 ### Tech & Security
 
 [**Black Hat**](https://www.youtube.com/@BlackHatOfficialYT) (Official channel for Black Hat cybersecurity conferences, featuring full briefings and talks from events)
