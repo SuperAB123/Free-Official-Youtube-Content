@@ -1366,6 +1366,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 ### Esport
 
+[**BLAST SLAM Dota 2**](https://www.youtube.com/@BLASTDota) 
+
 [**BLAST Premier**](https://www.youtube.com/@BLASTPremier)
 
 [**BLAST Premier CS2 Highlights**](https://www.youtube.com/@BLASTPremierHighlights/)
