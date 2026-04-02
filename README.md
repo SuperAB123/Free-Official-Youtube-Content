@@ -1381,7 +1381,7 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**ESL Archives**](https://www.youtube.com/eslarchives)
 
-[**ESL Counter-Strike**](https://www.youtube.com/@ESLCS)
+[**ESL Counter-Strike**](https://www.youtube.com/@ESLCS) [(GOLD GOLD GOLD!)](https://www.youtube.com/@ohnepixel)
 
 [**ESL Counter-Strike Highlights**](https://www.youtube.com/@ESLCSHighlights/)
 
