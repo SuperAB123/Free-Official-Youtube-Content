@@ -1302,6 +1302,8 @@ NPB [Pacific League](https://www.youtube.com/@PacificLeagueTVofficial) (good hal
 
 NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial) (Pacific League English anaylisis and sometimes live games)
 
+[**NRL Hunter**](https://www.youtube.com/@NationalRifleLeague/) 
+
 [**Nürburgring**](https://www.youtube.com/@N%C3%BCrburgring-o5h) 
 
 [**Olympics**](https://www.youtube.com/Olympics) (Olympic Games Archives, Highlights and Others)
@@ -1353,7 +1355,6 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 [**World Athletics**](https://www.youtube.com/@worldathletics) (Live track and field events and highlights)
 
 [**World Airsoft Games**](https://youtube.com/@worldairsoftgames) 
-
 
 [World Baseball Classic](https://www.youtube.com/@worldbaseballclassic) (Baseball World Cup full game archives, highlights and others)
 
