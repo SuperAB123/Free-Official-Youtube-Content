@@ -1314,6 +1314,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**PPA Asia Tour**](https://www.youtube.com/@PPATourAsia) (The premier series of pro pickleball events in Asia)
 
+[**Precision Rifle Series PRS**](https://www.youtube.com/@precisionrifleseriesprs4498) 
+
 [**Premier League**](https://www.youtube.com/@premierleague) (Official English Premier League highlights and match analysis)
 
 [**Red Bull**](https://www.youtube.com/@redbull) (Extreme sports documentaries and clips)
