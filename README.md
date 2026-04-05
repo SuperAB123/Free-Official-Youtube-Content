@@ -1221,6 +1221,8 @@ CONMEBOL Sudamericana- [in Spanish](https://www.youtube.com/@Sudamericana) or [i
 
 [**ESPN**](https://www.youtube.com/@espn) (Sports news, highlights, and analysis from ESPN)
 
+[**F-Class Points Series**](https://www.youtube.com/@f-classpointsseries/) 
+
 [**FIA – Fédération Internationale de l'Automobile**](https://www.youtube.com/@FIAOfficialVideo) (Live, clips, highlights and extras)
 
 [**FIA World Endurance Championship**](https://www.youtube.com/@FIAWEC) (Live, clips, highlights and extras)
