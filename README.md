@@ -19,8 +19,6 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 This list will only focus on official YouTube channels who have the rights to post the content online, no unofficial uploaders are allowed
 
-[Original list on Rentry](https://rentry.co/Free-Official-Youtube-Content)
-
 ### Table Of Contents
 
 [Anime](#Anime)
@@ -1519,3 +1517,4 @@ Awesome list of official YouTube channels offering Movies, Anime, Cartoons, Docu
 ###### Always read `README.md` and `CONTRIBUTING.md` in full first before you  [![Ask DeepWiki](https://deepwiki.com/badge.svg)](https://deepwiki.com/SuperAB123/Free-Official-Youtube-Content)! Contributors have worked very hard on writing and maintaining this list! 
 #### If you enjoy using this list, a star on github would be greatly appreciated!
 #### [If you want me to try out/give me 5 days of Real Debrid, use my referral link next time you renew/buy your Real Debrid subscription !](http://real-debrid.com/?id=15299096)
+[Original list on Rentry](https://rentry.co/Free-Official-Youtube-Content)
