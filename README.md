@@ -1378,7 +1378,7 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**BLAST Premier**](https://www.youtube.com/@BLASTPremier)
 
-[**BLAST Premier CS2 Highlights**](https://www.youtube.com/@BLASTPremierHighlights/)
+[**BLAST Premier CS2 Highlights**](https://www.youtube.com/@BLASTPremierHighlights/) ([GOLD GOLD GOLD!](https://www.youtube.com/@ohnepixel))
 
 [**BLAST Premier VOD Archive**](https://www.youtube.com/@BLASTPremierVOD)
 
@@ -1400,7 +1400,7 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**LEC**](https://www.youtube.com/@LEC) 
 
-[**StarLadder CS2**](https://www.youtube.com/@starladder_cs)
+[**StarLadder CS2**](https://www.youtube.com/@starladder_cs) ([GOLD GOLD GOLD!](https://www.youtube.com/@ohnepixel))
 
 [**StarLadder CS2 Highlights**](https://www.youtube.com/@starladder_cs_highlights) 
 
