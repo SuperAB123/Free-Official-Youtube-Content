@@ -1402,6 +1402,10 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**LEC**](https://www.youtube.com/@LEC) 
 
+[**Rainbow Six Esports**](https://www.youtube.com/@RainbowSixEsports)
+
+[**Rainbow Six Esports Match Vods**](https://www.youtube.com/@R6EsportsVods/) 
+
 [**StarLadder CS2**](https://www.youtube.com/@starladder_cs) ([GOLD GOLD GOLD!](https://www.youtube.com/@ohnepixel))
 
 [**StarLadder CS2 Highlights**](https://www.youtube.com/@starladder_cs_highlights) 
