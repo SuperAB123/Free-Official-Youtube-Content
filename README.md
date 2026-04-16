@@ -659,6 +659,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**GOPRO**](https://www.youtube.com/gopro) (Products, POV's and awesome content)
 
+[**Godzilla Channel ゴジラ（東宝特撮）チャンネル**](https://www.youtube.com/@GodzillaOfficial/) 
+
 [**GODZILLA OFFICIAL by TOHO**](https://www.youtube.com/@GodzillaToho/) (clips)
 
 [**Harry Potter**](https://www.youtube.com/@harrypotter) (Movie recaps, deleted scenes and extras)
