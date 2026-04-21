@@ -1414,6 +1414,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**StarLadder CS2 LIVE**](https://www.youtube.com/@starladder_cs_live)
 
+[**VGBootCamp**](https://www.youtube.com/@vgbootcamp) 
+
 ### Tech & Security
 
 [**Black Hat**](https://www.youtube.com/@BlackHatOfficialYT) (Official channel for Black Hat cybersecurity conferences, featuring full briefings and talks from events)
