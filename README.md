@@ -1067,6 +1067,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**The Office**](https://www.youtube.com/@TheOffice) (Clips and Compilation)
 
+[**The Price Is Right**](https://www.youtube.com/@thepriceisright) 
+
 [**The Resident**](https://www.youtube.com/@TheResidentonFOX) (Clips)
 
 [**The Tonight Show Starring Jimmy Fallon**](https://www.youtube.com/@fallontonight) (Full interviews, sketches, and games)
