@@ -1318,6 +1318,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [Paralympics](https://www.youtube.com/@paralympics) (Paralympic Games Archives, Highlights and Others)
 
+[**Practical Competition Shooting League/ PCSL**](https://www.youtube.com/@PCS_League) 
+
 [**PGA TOUR**](https://www.youtube.com/@PGATour) (Tournament highlights, player features, and iconic shots)
 
 [**PPA Asia Tour**](https://www.youtube.com/@PPATourAsia) (The premier series of pro pickleball events in Asia)
