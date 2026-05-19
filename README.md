@@ -1181,6 +1181,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 ### Sport
 
+[**24 Heures du Mans**](https://www.youtube.com/@24heuresdumans) 
+
 [**Action Streaming Live**](https://www.youtube.com/@ActionStreamingLive/) (high‑quality, real‑time coverage of IPSC, USPSA)
 
 [**ADAC RAVENOL 24h Nürburgring**](https://www.youtube.com/@24hnbr) 
