@@ -1534,3 +1534,10 @@ Awesome list of official YouTube channels offering Movies, Anime, Cartoons, Docu
 #### If you enjoy using this list, a star on github would be greatly appreciated!
 Including a channel or website on here does not mean that I endose or agree with everything that they say or do. 
 [Original list on Rentry](https://rentry.co/Free-Official-Youtube-Content)
+<a href="https://www.star-history.com/?repos=SuperAB123%2FFree-Official-Youtube-Content&type=date&legend=top-left">
+ <picture>
+   <source media="(prefers-color-scheme: dark)" srcset="https://api.star-history.com/chart?repos=SuperAB123/Free-Official-Youtube-Content&type=date&theme=dark&legend=top-left" />
+   <source media="(prefers-color-scheme: light)" srcset="https://api.star-history.com/chart?repos=SuperAB123/Free-Official-Youtube-Content&type=date&legend=top-left" />
+   <img alt="Star History Chart" src="https://api.star-history.com/chart?repos=SuperAB123/Free-Official-Youtube-Content&type=date&legend=top-left" />
+ </picture>
+</a>
