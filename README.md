@@ -1,4 +1,5 @@
 # Free Official YouTube Content: Movie, Anime, Cartoon
+[![GitGem](https://gitgem.org/api/badge/github/SuperAB123/Free-Official-Youtube-Content.svg)](https://gitgem.org/github/SuperAB123/Free-Official-Youtube-Content)
 If you are overwhelmed, just scroll down to read and use the list.
 
 There's many official YouTube channels that upload full content for free, be it Movies, TV Shows, Cartoons, Anime...
