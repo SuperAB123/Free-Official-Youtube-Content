@@ -796,6 +796,8 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Walt Disney Imagineering**](https://www.youtube.com/@waltdisneyimagineering/featured) (BTS Videos of Disney's parks/ [Inside look at Walt Disney Imagineering](https://www.youtube.com/playlist?list=PLZuKWjoQGMP5LFHVnDn-sxggnJCZi3d9H))
 
+[**War Archives**](https://www.youtube.com/@WarArchives) 
+
 [**Warner Bros Entertainment**](https://www.youtube.com/@warnerbrosentertainment) (Trailers, clips, and promotional content from Warner Bros. productions)
 
 [**Warner Bros. Rewind**](https://www.youtube.com/@WarnerBrosRewind) (Classic Warner Bros. content and retro clips)
