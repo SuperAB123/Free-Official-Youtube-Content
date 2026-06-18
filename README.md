@@ -428,6 +428,8 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Computer History Archives Project ("CHAP")**](https://www.youtube.com/@ComputerHistoryArchivesProject) (Archive of old films about computer history)
 
+[**CNA Insider**](https://www.youtube.com/@CNAInsider) (Stories about Asia, mostly Singapore)
+
 [**Curiosity Stream**](https://www.youtube.com/@CuriosityStreaming) (Trailers, parts of, and full, documentaries)
 
 [**Discovery**](https://www.youtube.com/@discovery) (Clips and full episodes from Discovery Channel documentaries and series)
