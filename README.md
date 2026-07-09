@@ -120,7 +120,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Adventure Time**](https://www.youtube.com/@AdventureTime) (Mostly clips and compilations, but some full episodes and marathons)
 
-[**Adult Swim**](https://www.youtube.com/@adultswim) 
+[**Adult Swim**](https://www.youtube.com/@adultswim) ( Adult Swim is famous for surreal, dark humor, shock comedy, and experimental animation.) 
 
 [**Angry Birds**](https://www.youtube.com/@AngryBirds) (Full episodes of the animated series)
 
