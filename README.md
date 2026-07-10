@@ -912,7 +912,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Spider-Man**](https://www.youtube.com/spiderman) (Clips, extras and Movie tie-ins like "the spider within")
 
-[**The Asylum**](https://www.youtube.com/@theasylum) (The official home for trailers of mockbusters and B-movies)
+[**The Asylum**](https://youtube.com/@theasylummoviechannel) (The official home for trailers of mockbusters and B-movies)
  
 [**Timeless Classic Movies**](https://www.youtube.com/@TimelessClassicMovies) (Public domain classic movies from the Golden Age of Hollywood)
 
