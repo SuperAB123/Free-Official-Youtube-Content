@@ -590,6 +590,8 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Animation World Network**](https://www.youtube.com/@AWN-AnimationWorldNetwork) (Trailers, clips and Featurettes from upcoming animated movies (including fully animated movies and CG animated movies/movies who use a lot of CGI constantly))
 
+[**Architectural Digest**](https://www.youtube.com/@Archdigest) 
+
 [**Apple TV**](https://www.youtube.com/@AppleTV) (Trailers, sneak peeks, and clips for Apple TV original content)
 
 [**ATV 亞洲電視**](https://www.youtube.com/@atvhongkong) (Old Free Hong Kong TV)
