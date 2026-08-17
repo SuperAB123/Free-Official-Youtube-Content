@@ -1569,7 +1569,25 @@ Including a channel or website on here does not mean that I endose or agree with
 #### [If you want me to support me and the list, use my referral link next time you renew/buy your TorBox subscription!](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3) You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
 [Original list on Rentry](https://rentry.co/Free-Official-Youtube-Content)
 #### [If you want me to support me and the list, use my referral link next time you renew/buy your TorBox subscription!](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3) You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
+<a href="https://star-history.dera.page/#SuperAB123/Free-Official-Youtube-Content&type=date">
+ <picture>
+   <source media="(prefers-color-scheme: dark)" srcset="https://star-history.dera.page/svg?repos=SuperAB123/Free-Official-Youtube-Content&type=date&theme=dark&legend=top-left" />
+   <source media="(prefers-color-scheme: light)" srcset="https://star-history.dera.page/svg?repos=SuperAB123/Free-Official-Youtube-Content&type=date&legend=top-left" />
+   <img alt="Star History Chart" src="https://star-history.dera.page/svg?repos=SuperAB123/Free-Official-Youtube-Content&type=date&legend=top-left" />
+ </picture>
+</a>
 #### [If you want me to support me and the list, use my referral link next time you renew/buy your TorBox subscription!](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3) You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
 ###### Always read `README.md` and `CONTRIBUTING.md` in full first before you [![Ask DeepWiki](https://deepwiki.com/badge.svg)](https://deepwiki.com/SuperAB123/Free-Official-Youtube-Content)! Contributors have worked very hard on writing and maintaining this list! 
 #### [If you want me to support me and the list, use my referral link next time you renew/buy your TorBox subscription!](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3) You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
+
+
+<a href="https://star-history.dera.page/#SuperAB123/Free-Official-Youtube-Content&type=timeline">
+ <picture>
+   <source media="(prefers-color-scheme: dark)" srcset="https://star-history.dera.page/svg?repos=SuperAB123/Free-Official-Youtube-Content&type=timeline&theme=dark&legend=top-left" />
+   <source media="(prefers-color-scheme: light)" srcset="https://star-history.dera.page/svg?repos=SuperAB123/Free-Official-Youtube-Content&type=timeline&legend=top-left" />
+   <img alt="Star History Chart" src="https://star-history.dera.page/svg?repos=SuperAB123/Free-Official-Youtube-Content&type=timeline&legend=top-left" />
+ </picture>
+</a>
+
+# [If you want me to support me and the list, use my referral link next time you renew/buy your TorBox subscription!](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3) You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
 You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
