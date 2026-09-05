@@ -1343,6 +1343,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**Practical Competition Shooting League/ PCSL**](https://www.youtube.com/@PCS_League) 
 
+[**Professional Darts Corporation**](https://www.youtube.com/@officialpdc)
+
 [**PGA TOUR**](https://www.youtube.com/@PGATour) (Tournament highlights, player features, and iconic shots)
 
 [**PPA Asia Tour**](https://www.youtube.com/@PPATourAsia) (The premier series of pro pickleball events in Asia)
