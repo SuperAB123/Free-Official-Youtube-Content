@@ -1212,6 +1212,8 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**All Elite Wrestling**](https://www.youtube.com/@AEW) (Clips, highlights, and full matches)
 
+[**America's Cup**](https://www.youtube.com/@americascup) 
+
 [**Arcteryx**](https://www.youtube.com/@arcteryx) (Outdoor adventure and climbing content)
 
 [**Australian Open**](https://www.youtube.com/@australianopen) 
