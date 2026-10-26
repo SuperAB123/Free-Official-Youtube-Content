@@ -12,7 +12,7 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [Originally](https://rentry.co/Free-Official-Youtube-Content) made by [Gordon Feetman](https://github.com/GordonFeetman0)
 
-💜A big thanks to [FMHY](https://fmhy.net/) for adding my page to [their list](https://fmhy.net/video#free-w-ads)💜
+[![Featured on FMHY](https://cdn.jsdelivr.net/gh/JMcrafter26/badges@main/src/assets/available/fmhy/cozy.svg)](https://fmhy.net/) 
 
 Also a big thanks to [all the members of the FMHY Discord server](https://github.com/fmhy/FMHY/wiki/FMHY-Discord) for suggesting me most of these channels
 
