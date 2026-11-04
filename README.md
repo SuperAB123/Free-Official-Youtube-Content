@@ -134,8 +134,6 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Ben 10**](https://www.youtube.com/@Ben10) (Official clips, compilations, and full episodes, in English)
 
-[**Bugs Bunny**](https://www.youtube.com/@looneytunes) (Classic Looney Tunes shorts and clips)
-
 [**Cartoon Hangover**](https://www.youtube.com/@CartoonHangover) (Home of Bravest Warriors and other indie animations)
 
 [**Cartoon Network UK**](https://www.youtube.com/@cartoonnetworkuk) (Some full episodes, mostly clips and compilations)
